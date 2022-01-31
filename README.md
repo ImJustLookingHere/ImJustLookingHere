@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ImJustLookingHere
+- 👀 I’m interested in ... everything   
+- 🌱 I’m currently learning ... everything  
+- 💞️ I’m looking to collaborate on ... nothing right now
+- 📫 How to reach me ... i'm antisocial so you don't want to reach me (:
+    -Don't ask for my Twitter you don't want to go down that rabbit hole 
